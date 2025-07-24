@@ -16,5 +16,7 @@
 
 ### 📫 Let's Connect
 [LinkedIn] --> (https://www.linkedin.com/in/alan-ayala-garc%C3%ADa-343570211/)
+
 [Instagram] --> (https://www.instagram.com/a.ayala.g/)
+
 [Gmail] --> (alanayalag@gmail.com)
